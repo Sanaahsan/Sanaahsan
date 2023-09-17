@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **sanaahsanmallick@gmail.com**
 
-- ⚡ Fun fact **I can move both my ears.**
+- ⚡ Fun fact **I'm an idealist with an ENFJ personality type**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
